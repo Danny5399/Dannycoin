@@ -31,6 +31,8 @@ JOIN US
 
 ⭕ Website: https://www.dannycoin.io
 
+💱 DEX Exchange: https://www.dandex.io
+
 📄 Whitepaper : https://docs.dannycoin.io
 
 👨🏿‍🤝‍👨🏿Twitter : https://x.com/Dan74668
