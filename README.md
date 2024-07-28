@@ -1,4 +1,4 @@
-# Unlocks The DeFi on DANNY Platform
+# Unlocks The DeFi Technology on DannyCoin Platform
 <div align="center"><img src="https://dannycoin.io/wp-content/uploads/2024/07/photo_6134157079552834558_y-removebg-preview-1-1.png" /><br />
 </div>
 <div align="center">
